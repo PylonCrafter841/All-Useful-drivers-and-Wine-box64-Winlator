@@ -1,0 +1,1 @@
+this file contains apk and wcp there all safe except winlator 1.0 was warn from play store saying this app is harmful just ignore it doesn't affect your phone so btw enjoy your download file that file contains winlator frost and more so enjoy
